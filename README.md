@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **DSA**
 
-- 📫 How to reach me **muzamilszab538@gmail.com**
+- 📫 How to reach me **muzamilahmed10.70@gmail.com**
 
 - ⚡ Fun fact **I am Funny**
 
